@@ -1,5 +1,5 @@
 # chirac-holenge-
-jeune congolais 🇨🇩 
-travailleur chez Univers Forage Water
+jeune congolais
+Ingénier principal chez Novatech group
 manager des stars 🎤⚽
 
